@@ -1,1 +1,1 @@
-Ehal Greka cherez reku, vidit Greka v reke rak. Sunul Greka ruku v reku - rak za ruku Greku cap! 
+Ехал Грека через реку, видит Грека в реке - рак. Сунул Грека руку в реку - рак за руку греку цап!
